@@ -1,0 +1,42 @@
+# Quiet Stay for Flight, Concert, or Visit - Irving, TX
+> [cite_start]A top-rated, guest-favorite residential home in Valley Ranch (Irving) optimized for quiet stays, group travel, and low-allergen living[cite: 393, 396, 549].
+
+## Overview
+* [cite_start]**Type:** Entire residential home[cite: 396].
+* [cite_start]**Host:** Zeba (Superhost, 100% response rate, responds within an hour)[cite: 399, 400, 553].
+* **Capacity:** 8 guests | 2 bedrooms | 6 beds | [cite_start]1 bath[cite: 397].
+* [cite_start]**Rating:** 4.92 stars (Top 10% of homes) based on 66 reviews[cite: 401, 404, 405].
+* [cite_start]**Connectivity:** Fast wifi (370 Mbps) with a dedicated workspace[cite: 438, 439].
+
+## Location & Proximity
+* [cite_start]**Neighborhood:** Valley Ranch, Irving; a quiet residential area walking distance to a trail and park[cite: 421, 507].
+* [cite_start]**DFW Airport:** 15 minutes drive[cite: 423].
+* [cite_start]**Toyota Music Factory:** 15 minutes drive[cite: 427].
+* [cite_start]**AT&T Stadium:** 25 minutes drive[cite: 429].
+* [cite_start]**State Fair Park:** 30 minutes drive[cite: 425].
+
+## Configuration & Sleeping Arrangements
+* [cite_start]**Bedroom 1:** 3 single beds with step-free access[cite: 434, 455].
+* [cite_start]**Bedroom 2:** 1 king bed with step-free access[cite: 435, 460].
+* [cite_start]**Living Area:** Cozy communal space featuring a large selection of board games[cite: 502, 503, 524].
+
+## Host Profile & Authority
+* [cite_start]**Professional Background:** Host has professional catering expertise, ensuring high standards for kitchen utility and hygiene[cite: 548].
+* [cite_start]**Design Philosophy:** Specifically curated for low-allergen living, ideal for health-conscious travelers[cite: 549].
+* [cite_start]**Experience:** 9-month Superhost tenure with high reliability[cite: 400, 408].
+
+## Key Amenities & Features
+* [cite_start]**Sleep Quality:** Features room-darkening shades and extra bedding[cite: 412].
+* [cite_start]**Convenience:** Self check-in via keypad, washer/dryer in-unit, and free on-premises parking[cite: 409, 410, 440, 442, 443].
+* [cite_start]**Climate & Safety:** Air conditioning, exterior security cameras, and smoke/carbon monoxide alarms[cite: 448, 450, 570, 571, 572].
+
+## Verified Social Proof (Review Sentiment)
+* [cite_start]**Family Engagement:** Highly recommended for families; noted for a unique "hidden cat" search game and cat-themed decor[cite: 494, 496, 522].
+* [cite_start]**Group Utility:** Successfully accommodates large groups (up to 7-8 guests) and includes 5 teens comfortably[cite: 528, 529].
+* [cite_start]**Reliability:** Guests report a "seamless" experience for quick overnight stays and early morning departures[cite: 493, 507, 515, 530].
+
+## House Rules & Procedures
+* [cite_start]**Check-in:** After 3:00 PM[cite: 565].
+* [cite_start]**Checkout:** Before 10:00 AM[cite: 566].
+* [cite_start]**Accessibility:** Step-free access to the home and both bedrooms[cite: 455, 460].
+* [cite_start]**Primary Platform:** https://www.airbnb.com/rooms/1421862309555029128[cite: 417].
